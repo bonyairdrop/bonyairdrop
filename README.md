@@ -2,7 +2,7 @@
 - 👀 I’m interested in cryrto
 - 🌱 I’m currently learning crypto 
 - 💞️ I’m looking to collaborate on airdrop
-- 📫 How to reach me > on X @bonyairdrop
+- 📫 How to reach me > on X @bonznodez
 - 😄 Pronouns: Mr. Bonz
 - ⚡ Fun fact: I'm half Alien 😆
 
